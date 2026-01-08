@@ -1,1 +1,1 @@
-# examenra2
+# examenra2 Giulia Alisia Gherghin
